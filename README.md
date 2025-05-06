@@ -7,3 +7,4 @@
 
 And this is my firt commit made in a branch
 
+Read more about me in the JSON file
