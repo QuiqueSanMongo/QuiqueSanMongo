@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning Portugues
 - 📫 How to reach me @QuiqueSan in almost all platforms
 - 😄 Pronouns: He / His (But any other also works)
-- ⚡ Fun fact: I have 3 dogs, 2 pomeranians and 1 Dutch Shepherd
+- ⚡ Fun fact: I have 3 dogs, 1 Pomeranian, 1 German Spitz, and 1 Dutch Shepherd
